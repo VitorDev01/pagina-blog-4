@@ -86,7 +86,7 @@
          <hr>
          <p>Todo brilho que a cantora teve  naturalmente assim como outras pessoas do signo de leão foram afogados pelas águas profundas de netuno em escorpião, que coincide com a forma na qual ela morreu. Se você esta pensando agora " Mais se todos abusarem dessas coisas podem ter o mesmo fim", e esse pensamento não está errado, só que para algums a coisa é muito mais séria e a facilidade para isso é altíssima, exclusivamente para pessoas do <b>signo de Peixes, que possuem sol( Espírito e Essência) , lua( alma e Emoções) e ascendente (corpo e atitudes) nesse signo</b> regido pelo planeta netuno.</p>
          
-           <p>E sempre bom lembrar que o mapa natal revela coisas na qual vomos passar a vida inteira, como se fosse um guia de vida, além de ser uma ótima opção para se autoconhecer, saber dos seus limites, e seus maiores potênciais. Termino por aqui esta breve análise para nao estender muito a página logo abaixo um vídeo que explica mais detalhamente esses assuntos na vida se Whitney Houston.</p>
+           <p>E sempre bom lembrar que o mapa natal revela coisas na qual vomos passar a vida inteira, como se fosse um guia de vida, além de ser uma ótima opção para se autoconhecer, saber dos seus limites, e seus maiores potênciais. Termino por aqui esta breve análise para nao estender muito a página logo abaixo um vídeo que explica mais detalhamente esses assuntos na vida de Whitney Houston.</p>
         
          <br>
          <h1>O Último Dia De Whitney Houston</h1>
